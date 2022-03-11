@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Robust24
+- 👀 I’m interested in Architechture and robotics
+- 🌱 I’m currently learning Architechture
+- 💞️ I’m looking to collaborate on Dumb Shit
+- 📫 How to reach me 
